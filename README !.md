@@ -14,12 +14,12 @@ If you spot me on pony town don't be scared to interact, hide your pony or cuddl
 ![tumblr_4beccef2816244889a7e0a0dcaed1508_8102b43c_100](https://github.com/user-attachments/assets/7c952bf2-657f-41c2-a069-8b8e76e38d03) ![tumblr_b3546a9d1642695f4b6e6da50b250480_39dfd1d8_100](https://github.com/user-attachments/assets/8a0f3bde-c641-473f-a099-86a0f63a9ef3)
 ![tumblr_fbd54809373d91c2b2684068685a7316_4125ed26_100](https://github.com/user-attachments/assets/a452f55a-84e4-4b87-9cf3-ae29800dd32f)
 
-[Pronouns.page](https://en.pronouns.page/@Silly_Dummy)  [Rentry.co](https://rentry.co/kikador)  [fake version of my malewife mentioned](https://www.youtube.com/watch?v=rNS6mzUBLn4)  
+꒰ ㅤ[Pronouns.page](https://en.pronouns.page/@Silly_Dummy)ㅤ✦ㅤ[Rentry.co](https://rentry.co/kikador)ㅤ✦ㅤ[fake version of my malewife mentioned](https://www.youtube.com/watch?v=rNS6mzUBLn4) ㅤ꒱
 
 ![tumblr_df86fa294b0d127b1cbdc85c13941769_3576b3c3_100](https://github.com/user-attachments/assets/1511c2a4-d271-422a-a776-765762f4db1e) 
  ![tumblr_f9b1a6a26e7b5a280692a61543f0eb2f_74fd9145_100](https://github.com/user-attachments/assets/3483668c-af82-42e6-a561-890d6d5fb54c)  ![tumblr_e9280f9ac6f2bf33c10867881c4b8305_e1a84d8b_100](https://github.com/user-attachments/assets/049dd030-55e1-4a0c-83e1-afb3c84ffdd3)
 
-[This is so my pookie 1](https://www.youtube.com/watch?v=f5QbWqCKQ0o)  [This is so my pookie 2](https://www.youtube.com/watch?v=QW-RH1wAz04)
+꒰ㅤ[This is so my pookie 1](https://www.youtube.com/watch?v=f5QbWqCKQ0o)ㅤ♡ㅤ[This is so my pookie 2](https://www.youtube.com/watch?v=QW-RH1wAz04)ㅤ꒱
 
 ( I ain't decorating this shit )
 
