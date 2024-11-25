@@ -21,6 +21,6 @@ If you spot me on pony town don't be scared to interact, hide your pony or cuddl
 
 ꒰ㅤ[This is so my pookie 1](https://www.youtube.com/watch?v=f5QbWqCKQ0o)ㅤ♡ㅤ[This is so my pookie 2](https://www.youtube.com/watch?v=QW-RH1wAz04)ㅤ꒱
 
-( I ain't decorating this shit )
+( I ain't decorating all of this shit )
 
 ![tumblr_d17e6c91148da8005f739f86f5eb8ba6_3d69caa7_2048](https://github.com/user-attachments/assets/0035b20d-fb48-4524-a016-fd02a250a443)
