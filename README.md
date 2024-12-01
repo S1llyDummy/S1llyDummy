@@ -1,6 +1,6 @@
 ![Alt Tag](https://64.media.tumblr.com/904d33126515e0dbab9ad0bddc22a7bc/011185eda437489c-ca/s2048x3072/ca2fab7a2e7c5d41fc1e60a8154a61fa5ab5e613.pnj)
 
-♯ **Haiyo. Haiya !** ⭑ ㅤ༝ ㅤ° ㅤ˖ㅤ ![Alt Tag](https://64.media.tumblr.com/702e892ef87344ec8eac94574b25498f/3a1dd0d929d3562e-7d/s75x75_c1/b1af0afb2d3d22c2f282ad2069ba8706416cc79d.gifv)
+♯ㅤ**Haiyo. Haiya !** ⭑ ㅤ༝ ㅤ° ㅤ˖ㅤ ![Alt Tag](https://64.media.tumblr.com/702e892ef87344ec8eac94574b25498f/3a1dd0d929d3562e-7d/s75x75_c1/b1af0afb2d3d22c2f282ad2069ba8706416cc79d.gifv)
 
 ![Alt Tag](https://files.catbox.moe/2w6fkt.gif)ㅤ𓈒ㅤ𓈒 ㅤ♯ㅤI'm dummy, but you can also call me kikoi or bannie ! 
 
