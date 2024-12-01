@@ -1,12 +1,12 @@
 ![Alt Tag](https://64.media.tumblr.com/904d33126515e0dbab9ad0bddc22a7bc/011185eda437489c-ca/s2048x3072/ca2fab7a2e7c5d41fc1e60a8154a61fa5ab5e613.pnj)
 
-**Haiyo. Haiya !**
+♯ **Haiyo. Haiya !** ⭑ ㅤ༝ ㅤ° ㅤ˖ㅤ ![Alt Tag](https://64.media.tumblr.com/702e892ef87344ec8eac94574b25498f/3a1dd0d929d3562e-7d/s75x75_c1/b1af0afb2d3d22c2f282ad2069ba8706416cc79d.gifv)
 
-I'm dummy, but you can also call me kikoi or bannie !
+![Alt Tag](https://files.catbox.moe/2w6fkt.gif)ㅤ𓈒ㅤ𓈒 ㅤ♯ㅤI'm dummy, but you can also call me kikoi or bannie ! 
 
 ![Alt Tag](https://64.media.tumblr.com/dc5466fa52ff0b5883439564286270ce/147e422eed2ecc0d-d3/s100x200/f9d4e1ca6ba671f2ee10f50c804937919dd0c394.pnj) ![Alt Tag](https://64.media.tumblr.com/e7df767de43abdac1fb9e8b1f8ff8047/147e422eed2ecc0d-7d/s100x200/43a9ddc705f1e128b75d0ab745d75f405947bae8.pnj) ![Alt Tag](https://64.media.tumblr.com/8f084945f0f4f94450c475106a4aeb3f/3bf9185d18abb95b-8d/s100x200/2f4bd3b264f612783d0f941d3a7657e725257230.pnj)
 
-If you spot me on pony town don't be scared ( 100% NOT like me ) to interact + hide your pony or cuddle + w2i (Whisper to interact)
+♯ If you spot me on pony town don't be scared ( 100% NOT like me ) to interact + hide your pony or cuddle + w2i (Whisper to interact)
 
 Just a **REMINDER** that i get really nervous when i interact with people, so i may not respond to you ! (because i don't know how to respond or i'm very nervous) + or i may run away from you
 
