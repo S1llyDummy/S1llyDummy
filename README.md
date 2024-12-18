@@ -12,7 +12,7 @@
 
 ![Alt Tag](https://64.media.tumblr.com/2d69babfb331de34cbc5e4f2f234d734/cf682233aa864a9e-b0/s100x200/15e2b5bff1501649b759b21d7dec31ae858f3ead.gifv) ![Alt Tag](https://64.media.tumblr.com/748221bdf632e7f387bd2834a893de59/bfaaeb60d3ffc0b4-71/s100x200/000a982f7d005dec0194f07dc74a8aa5516d288b.pnj) ![Alt Tag](https://64.media.tumblr.com/781a146cfa0079b16c9c5c35100e78ad/bfaaeb60d3ffc0b4-d9/s250x400/857d744c1b6a665bb14a00b18258eeb030e97bf6.gifv)
 
-︵︵ㅤ꒰ [This is so my pookie 1 coded](https://www.youtube.com/watch?v=f5QbWqCKQ0o)ㅤ ![Alt Tag](https://pixels.crd.co/assets/images/gallery02/5c1acf66.gif?v=875a4f74) ㅤ[This is so my pookie 2 coded](https://www.youtube.com/watch?v=QW-RH1wAz04) ꒱ㅤ︵︵
+︵︵ㅤ꒰ [This is so my pookie 1 coded](https://www.youtube.com/watch?v=f5QbWqCKQ0o)ㅤ♡︎ㅤ[This is so my pookie 2 coded](https://www.youtube.com/watch?v=QW-RH1wAz04) ꒱ㅤ︵︵
 
 ( Why does this look so bad, i'm going to kill myself )
 
